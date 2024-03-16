@@ -1,4 +1,4 @@
-## 📈 Darknet Markets Links 2024 (verified superlist v2)
+## 📈 Darknet Markets Links 2024 (Verified superlist v2)
 
 The world of darknet markets is vast and ever-changing. Below is a list of websites that are essential for anyone.
 
