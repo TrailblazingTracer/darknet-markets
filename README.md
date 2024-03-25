@@ -1,10 +1,10 @@
-## 📈 Darknet Markets Links 2024 (Verified superlist v2)
+## 📈 Darknet Markets Links 2024 (Verified superlist v 2.0)
 
 The world of darknet markets is vast and ever-changing. Below is a list of websites that are essential for anyone.
 
 ### Markets URLs
 
-- 🔥 [Nemesis Market](http://nemesis55gdxo6emcigofp26nmjokadvmvsbnauloweoa47v2aap2ead.onion) - `http://nemesis55gdxo6emcigofp26nmjokadvmvsbnauloweoa47v2aap2ead.onion` 
+- 🔥 [Incognito Market](http://incognirftkvasqxfh2iess6cr5a243y72z3vbz75nvj2fx62a5ukpad.onion) - `http://incognirftkvasqxfh2iess6cr5a243y72z3vbz75nvj2fx62a5ukpad.onion`  
 - 🔥 [Abacus Market](http://abacus5m27pzz3i6cfh7cg7tjt43lkiur6gjqjrwym2avv4uvgfmabad.onion) - `http://abacus5m27pzz3i6cfh7cg7tjt43lkiur6gjqjrwym2avv4uvgfmabad.onion`
 - 🇸🇪 [Flugsvamp 4.0](http://fs4isvbujof355wj3hhsqahpvmwwjaq3s4mac4yrufrl26pxbzqjvzid.onion) - `http://fs4isvbujof355wj3hhsqahpvmwwjaq3s4mac4yrufrl26pxbzqjvzid.onion`
 - [MGM Grand Market](http://duysanj6lge7vfis24r4zkqrvq6tq4xknajk2wdrne2wgx5hpr5c3tqd.onion) - `http://duysanj6lge7vfis24r4zkqrvq6tq4xknajk2wdrne2wgx5hpr5c3tqd.onion`
